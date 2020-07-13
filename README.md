@@ -1,4 +1,4 @@
-*Most of my GitHub activity occurs under my other account: [andornaut](https://github.com/andornaut)*
+**Most of my GitHub activity occurs under my other account: [andornaut](https://github.com/andornaut)**
 
 ## Links
 
